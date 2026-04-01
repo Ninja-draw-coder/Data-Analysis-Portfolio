@@ -1,4 +1,4 @@
-# Data-Analysis-Portfolio-
+# Data-Analysis-Portfolio
 Hi, I'm Shruti Jain — Data Analyst
 📍 Austin, Texas  |  📧 shruti.jain19@gmail.com  |  
 About Me
